@@ -1,1 +1,0 @@
-# Sistema-B-sico-de-Pedidos-para-uma-Lanchonete
